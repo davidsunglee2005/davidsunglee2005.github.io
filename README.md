@@ -1,2 +1,2 @@
-# davidsunglee2005.github.io
-Professional work history site for Sung Jong (David) Lee
+# Sung Jong (David) Lee
+Learn more about Sung Jong (David) Lee from my [LinkedIn](https://www.linkedin.com/in/davidsunglee2005/)
